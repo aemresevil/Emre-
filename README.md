@@ -1,4 +1,4 @@
-# Emre-
+
 # Arif Emre Sevil
 
 **Lokasyon:** Eyüpsultan, İstanbul  
