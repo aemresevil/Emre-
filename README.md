@@ -3,7 +3,7 @@
 
 **Lokasyon:** Eyüpsultan, İstanbul  
 **E-posta:** aemresevil@gmail.com  
-**Telefon:** +90 546 716 47 59  
+
 
 ---
 
